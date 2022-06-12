@@ -1,2 +1,2 @@
 # CV
-Complicated self-introduction.
+Self-introduction.
