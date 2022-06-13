@@ -1,2 +1,2 @@
-# CV(will be updated about six months later.)
+# CV(will be updated in 2023.)
 Self-introduction.
