@@ -1,2 +1,2 @@
-# CV(will be updated in 2023.)
+# CV
 Self-introduction.
